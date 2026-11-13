@@ -208,4 +208,4 @@ Control Kids is available as a complete free version, ensuring all features and 
 Take control of your children's online experience today! Download Control Kids for a safer browsing environment.
 
 ---
-**Last updated:** 2026-11-12 20:38:57 UTC
+**Last updated:** 2026-11-13 01:41:21 UTC
